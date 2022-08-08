@@ -1,1 +1,1 @@
-This is a Team Projec
+This is a Team Project
